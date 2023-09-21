@@ -11,7 +11,7 @@ I´m a self-taught web dveloper, and I´m creative person.
 - 📫 To reach me: You can send me an email to: dev.mixicruz@gmail.com
   
 - 😄 Pronouns: She.
-- ⚡ Fun fact: mi name means "cat" in Otomi.
+- ⚡ Fun fact: my name means "cat" in Otomi.
 - 🙃 Hobby:  I like to make some clothes of crochet.
 - 💞 I´m passionate about giving back to my community and have volunteered my time with the organization @SinTrata to raise awareness about human trafficking.
 - I believe that it´s important to use our talents and skills to help others, and I hope to inspire others to do the same. 
