@@ -4,7 +4,7 @@ I´m a self-taught web dveloper, and I´m creative person.
 - I´m familiar with using Figma to create prototypes, and I use Trello for project planning and tracking.
 - 🌱 Right now I’m currently learning HTML, CSS, JavaScript and React. Tools that allow me to build dynamic websites and apps.
 - I´m goal-oriented, organized and committed.
-- i´m able to listen to clients with challenging visions and requirements.  
+- I´m able to listen to clients with challenging visions and requirements.  
 - 👯 I’m looking to collaborate on projects that help me develop my skills and
 - 🤔 I’d love to find an opportunity for professional experience and growth.
   
